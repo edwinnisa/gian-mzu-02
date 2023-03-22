@@ -1,1 +1,1 @@
-gg the people
+gg the people of guruthe best
