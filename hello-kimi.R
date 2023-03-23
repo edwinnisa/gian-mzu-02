@@ -1,1 +1,1 @@
-print("Hello kimi")
+my name is lallawmkimi tlau
